@@ -5,7 +5,7 @@ I work to provide timely market insights backed by data and thoughtful analysis.
 Professional demeanor, high ethical standards, outgoing personality, strong communicator and an interest to contribute to the growth of practice.
 Well-organized self-directed team player. Born, raised, and educated in the Buck-town neighborhood of Chicago,  
 lucky enough to be able to work in the same city and neighborhoods I grew up in and love. 
-I thrive on the energy and vitality of this city and what It has to offer. Peace Let Do This . 
+I thrive on the energy and vitality of this city and what It has to offer. Peace Lets Do This . 
 <!---
 ChiWebDev/ChiWebDev is ✨ special ✨ 
 --->
